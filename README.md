@@ -1,1 +1,1 @@
-# I study at MIREA
+# I study at MIREA!
